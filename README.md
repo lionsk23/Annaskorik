@@ -3,6 +3,7 @@
 💻 I'm node runner and validator, crypto enthuasist, contributor, content creator.
  I’m interested in crypto currencies and metaverse. 
 
+
 📂 Languages:
 
 Ukrainian (native)
@@ -10,6 +11,7 @@ Ukrainian (native)
 Russian
 
 English A1
+
 
 
 ✨ Skills:
@@ -20,6 +22,7 @@ Starknet: https://starknet.io/
 Minima: https://www.minima.global/
 Massa: https://massa.net/
 Masa finance: https://www.masa.finance/
+
 
 🔗 My socials:
 
