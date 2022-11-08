@@ -6,9 +6,12 @@
 📂 Languages:
 
 Ukrainian (native)
+
 Russian
+
 English A1
-German B1
+
+
 ✨ Skills:
 
 🛠 I've been doing node running. PROJECTS:
@@ -20,12 +23,14 @@ Masa finance: https://www.masa.finance/
 
 🔗 My socials:
 
-Medium https://medium.com/@web3tyan
-Facebook https://www.facebook.com/profile.php?id=100017176665963
-Linkedin https://www.linkedin.com/in/diana-shershun-b8308a1a3
-Discord: web3tyan#5086 / ID 377105983274614784
-Twitter: @web3tyan / ID 1422869762
-Telegram: @web3tyan / ID 330617696
-Youtube: https://youtube.com/channel/UCZP0yuNavEaP22-PiXqu_TQ
-TikTok: https://www.tiktok.com/@web3tyan
-📧 tumanovadiana@gmail.com 📫 DM to cooperate
+Medium https://medium.com/@lionsk
+
+Discord: LionSK#7807 / ID 557225776790110209
+
+Twitter: @HSkorik
+
+Telegram: @annaskorikzp / ID 654779323
+
+Youtube: https://www.youtube.com/channel/UCe7VsjZSypkrW0iDipKQkPw
+
+📧 anitadesign23@gmail.com 📫 DM to cooperate
