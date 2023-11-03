@@ -37,8 +37,6 @@ Discord: LionSK#7807 / ID 557225776790110209
 
 Twitter: @HSkorik
 
-Telegram: @annaskorikzp / ID 654779323
-
 Youtube: https://www.youtube.com/channel/UCe7VsjZSypkrW0iDipKQkPw
 
 📧 anitadesign23@gmail.com 📫 DM to cooperate
